@@ -12,5 +12,5 @@ You can click the Preview link to take a look at your changes.
 --->
 20 Years Experience working in Mortgage Finance.
 Highly trained and very fluent banking and identity theft security.
-Worked for Large Corporations such as Wells Fargo and US Bank Investing Fraud pver 20 years both Professional and Personal experience.
+Worked for Large Corporations such as Wells Fargo and US Bank Invesigating Fraud pver 20 years both Professional and Personal experience.
 I make security my Personal Businesss!
