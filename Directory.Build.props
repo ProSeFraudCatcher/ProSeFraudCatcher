@@ -1,0 +1,35 @@
+﻿<?xml version="1.0" encoding="utf-8"?>
+<Project ToolsVersion="15.0" xmlns="http://schemas.microsoft.com/developer/msbuild/2003">
+  <!-- This is the root Directory.Build.props file -->
+
+  <PropertyGroup>
+     <!--
+        Set helpful property for detecting the current OS platform.
+        We can't use the built-in $(OS) because it returns 'Unix' on macOS when run under Mono.
+      -->
+    <OSPlatform Condition="$([MSBuild]::IsOsPlatform('windows'))">windows</OSPlatform>
+    <OSPlatform Condition="$([MSBuild]::IsOsPlatform('osx'))">osx</OSPlatform>
+    <OSPlatform Condition="$([MSBuild]::IsOsPlatform('linux'))">linux</OSPlatform>
+    <IsUnixLike>true</IsUnixLike>
+    <IsUnixLike Condition="'$(OSPlatform)'=='windows'">false</IsUnixLike>
+
+    <!-- Define the root of the repository as a property - it's very useful! -->
+    <RepoPath>$(MSBuildThisFileDirectory)</RepoPath>
+    <RepoSrcPath>$(RepoPath)src\</RepoSrcPath>
+    <RepoOutPath>$(RepoPath)out\</RepoOutPath>
+    <RepoAssetsPath>$(RepoPath)assets\</RepoAssetsPath>
+
+    <!-- Identify projects that output an executable binary (not libraries) -->
+    <_IsExeProject Condition="'$(OutputType)' == 'Exe' OR '$(OutputType)' == 'WinExe'">true</_IsExeProject>
+
+    <!-- Automatically generate a Windows app manifest on Windows for exe projects -->
+    <GenerateWindowsAppManifest Condition="'$(GenerateWindowsAppManifest)' == '' AND '$(OSPlatform)' == 'windows' AND '$(_IsExeProject)' == 'true'">true</GenerateWindowsAppManifest>
+  </PropertyGroup>
+
+  <ItemGroup Condition = "'$(TargetFramework)' == 'net472'">
+    <PackageReference Include="System.Text.Json">
+      <Version>8.0.4</Version>
+    </PackageReference>
+  </ItemGroup>
+
+</Project>
