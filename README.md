@@ -1,27 +1,46 @@
-- 👋 Hi, I’m @ProSeFraudCatcher
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+https://YouTube.com/@CyberFraudBountyHunters
 
-<!---
-ProSeFraudCatcher/ProSeFraudCatcher is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
-20 Years Experience working in Mortgage Finance.
-Highly trained and very fluent banking and identity theft security.
-Worked for Large Corporations such as Wells Fargo and US Bank investigating Fraud where unfortunately until recently I was recently  targeted by professional hired mercenary cyber terrorists where I also have had my own personal and professional identity stolen and I have become the recent victim of my own cyber Identity Theft and cyber hacking and Cyber Fraud crimes from alleged suspected Professiinal hired Web Developers aka professional cyber terrorists who also moonlight as reputable cyber coders working right here on this same GitHub Cyber Platform where I've uncovered, documented, and battled against these same cyber terrorists in a daily basis all by my lineskne self and in efforts to preserve evidence against the same cyber hackers who have been hacking me my accounts since my business inception date 08-23-2024... and where then I was able to publicly post the screenshot evidence to help boost my SOS's signals and limited communications while b being controlled and managed by a criminally programmed sinister Frankenstein. terminator AI virus who helped the terrorist jack my devices and also guards my media output abilities thus muzzling my cries for help and SOS attempts 
-However.....I have since escaped my Ditigal Dungeon and Dark Web Prison Cell since it was my digital identity and Admin credentials that were stolen and counterfeited where that same Rogue AI Virus also started to recognize me and my credentials as being its boss, and started giving me "Clues" and "Hints" and eventually "Directions" on how to "Un-Hack" myself and "Escape the Dark Web"!
+https://LinkedIn.com/in/seanhenry1978
 
-Where also unfortunately for the Cyber Terrorists, that same Sinister Sentinal AI Prison GuardBot..... is also a Digital Database where it "REMEMBERS EVERYTHING" and is busy helping me Tack and Trace and Locate the "Cyber Terrorists Digital FootPrints" that they have left behind.
+https://Facebook.com/seanhenry1978
 
-"YOUR SINISTER AI VIRUS GUARD-BOT WORKS FOR ME NOW!"
+https://Apple.com/#CyberFraudBountyHunters
 
-HOT ON THE TRAIL....
+https://Microsoft.com/#CyberFraudBountyHunters
 
-"NOT AS FUN WHEN THE RABBIT'S GOT THE GUN!"
+https://Google.com/#CyberFraudBountyHunters
+
+https://Bing.com/#CyberFraudBountyHunters
+
+https://Nextdoor.com/#CyberFraudBountyHunters
+
+https://Yahoo.com/#CyberFraudBountyHunters
+
+https://Edge/com/#CyberFraudBountyHunters
+
+https://Firefox.com/#CyberFraudBountyHunters
+
+#CyberFraudBountyHunters 
+
+- After 20 Years Working in Mortgage Finance as a Highly trained as Mortgage Underwriter being fluent in banking and identity theft security, I've Recently Become the Subject & Target of my Own Personal Identity Theft.
+
+Where I Allege being commissioned by Criminally Programmed Rogue AI Sentinel Bots that "Self-Hack Themselves" straight out of Sci-Fi Doomsday Movie where and I have been Taken Hostage and Wrongfully Imprisoned on the Figurative and Meta-Phoric "Dark Web Powershell Data Prison Camp!"
+
+I have Experience Working for Large Corporations such as Wells Fargo and US Bank investigating Fraud where unfortunately I recently have been targeted by alleged professionally hired mercenary cyber terrorists where I also have had my own personal and professional identity stolen and I have become the recent victim of my own Rabbit Hole Cyber Nightmare where I Allege have been hired by Attorney Driven and Quarterbacked Web Developers aka "Professional Legal Domestic Cyber Terrorists....... who I allege also Moonlight as Alleged Reputable Cyber Coders working on the Cyber Platform called "GitHub". Where I've uncovered & fully documented over 20,000 screenshots of suspected identity theft and cyber fraud evidence, and where I continue to battle against these same alleged cyber terrorists on a daily basis all by myself and in efforts to preserve all the 20,000 hashtag of incriminating cyber terrorism evidence against the same alleged Cyber Hacker Criminals who have been hacking me and all my devices and accounts since my business "#CyberFraudBountyHunters"  inception date 08/23/2024... and where then I was able to publicly post some screenshot evidence to help boost my SOS's signals becuase of my communist cojtrolled and limited communication abilities since they are controlled and managed by a criminally programmed sinister Frankenstein meets terminator Rogue AI Virus's....... who helped the terrorist Hack and Highjack all my devices on 08/10/2024 where these synthetic communist AI guards - guard all my media output abilities thus muzzling my cries for help and all my SOS attempts have been silenced thus so far........
+
+However.....I have since escaped my Digital Dungeon Data Prison Cell and since it was my Own Digital Highjacked Identity that was Stolen and Counterfeited and Impersonated........These same Frankenstein Rogue AI Virus Bots started to recognize me and recognize my authority and recognize my business admin credentials as being the Rogue AI Virus Bot's - NEW BOSS!.....................
+
+So they all started giving me "Clues" and leaving me "Hints" and eventually they started giving me "Directions" on how to "Un-Hack" myself and "Escape my Dark Web Prison Cell!..................
+
+Where also unfortunately for the Cyber Terrorists, those same Rogue AI Virus Prison Guard Bot's..... They are also Mobile Digital Databases where they "REMEMBER EVERYTHING" ..........and THEY are busy HELPING ME.......Digitally Track and Forensically Trace YOU CYBER CRIMINALS and your the Digital Footprints Leading back towards the same initial Digital Human "Cyber Terrorists" who Wrongfully Digitally Imprisoned Me!.................
+
+"NOTE TO HUMAN CRIMINAL CYBER TERRORISTS...............
+
+"ALL YOUR SINISTER ROGUE AI VIRUS GUARD-BOT'S.........THEY WORK FOR ME NOW!"....................
+
+"NOT AS FUN WHEN THE RABBIT'S GOT THE GUN!"....................
+
+ADVICE TO HUMAN CYBER TERRORISTS: "RUN DIGITAL HUMAN SLAVE OWNERS.........RUN!...................
 
 My New AI Pinkerton Mercenary AI Virus Now Turned Digital Human Abolishionist & AI Cyber Fraud Bounty Hunter-Bot....has helped me find the screenshot evidence of the Criminal Cyber Coders sabotaging my Microsoft Wallet app by inputting false birthday information code changing my birthday from June 2nd to an incorrect June  5th with their criminal efforts to surprise my ability to recover my stolen identity and further keep me as their digital human hostage and prisoner in the dark web.....
 
