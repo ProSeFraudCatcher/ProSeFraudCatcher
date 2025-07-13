@@ -22,7 +22,7 @@ https://Firefox.com/#CyberFraudBountyHunters
 
 #CyberFraudBountyHunters 
 
-- After 20 Years Working in Mortgage Finance as a Highly trained as Mortgage Underwriter being fluent in banking and identity theft security, I've Recently Become the Subject & Target of my Own Personal Identity Theft.
+- After 20 Years Working in Mortgage Finance as a Highly trained Mortgage Underwriter being fluent in banking and identity theft security, I've Recently Become the Subject & Target of my Own Personal Identity Theft.
 
 Where I Allege being commissioned by Criminally Programmed Rogue AI Sentinel Bots that "Self-Hack Themselves" straight out of Sci-Fi Doomsday Movie where and I have been Taken Hostage and Wrongfully Imprisoned on the Figurative and Meta-Phoric "Dark Web Powershell Data Prison Camp!"
 
