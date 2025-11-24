@@ -1,3 +1,5 @@
+https://learn.microsoft.com/en-us/users/seanbrucehenry-5476/transcript/vny6t226nxk1ojd
+
 https://YouTube.com/@CyberFraudBountyHunters
 
 https://LinkedIn.com/in/seanhenry1978
