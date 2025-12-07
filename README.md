@@ -80,7 +80,7 @@ I'd say my Cyber Security & Cyber Investigations business and company......if it
 
 I challenge anyone else to prove or find any other daily hacked cyber security or cyber investigation business or company that has any fraction of cyber grit compared to what my digital domain has digitally demonstrated and has digitally experienced and has digitally defended and is still digitally standing?
 
-Our Business Domain's Self Reporting Dark Web Accredation has been real world tested and real life experienced making it the very rare digital gem and unique cyber security company that's been thoroughly vetted that I believe this AI world will need!
+Our Business Domain's Self Reporting Dark Web Accreditation  has been real world tested and real life experienced making it the very rare digital gem and unique cyber security company that's been thoroughly vetted that I believe this AI world will desperately need!
 
 Its because of both this Peronal and Professional cyber terrorism experience that I proudly and appropriately named my Cyber Security Company "#CyberFraudBountyHunters" where I was real time forced to leverage my vast 20 years of working in the Mortgage Fraud investigations business that was paramount in my ability to escape the digital dark web AI human prisoner POW data-prison camp....., allowing me to track and trace the suspects and their digital footprints  where I am almost on the verge of solving my own digital identity theft case.
 
