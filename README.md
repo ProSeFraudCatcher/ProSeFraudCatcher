@@ -44,7 +44,7 @@ I NEED HELP!
 
 SOS!
 
-I can't keep defending this all by myself, and for much longer, but I still defend and I will still stand firm & tall as long as I have the ability to continue to defend my daily terrorized & hacked web domain called "#CyberFraudBountyHunters" "AKA/DBA" "Pro Se Fraud Catcher"........all with efforts to defend and preserve all of the same documented cyber terorrism evidence against the same cyber terrorists who's only goal is to delete, remove, intercept, and/or spoil all that same cyber terrorism evidence that I have collected against them and is why they continue to hack me and trespass my hacked domain, while simoultaniously GitHub turns a blind eye and they don't seem to have any cares or concerns for witnessing daily cyber terrorism upon their own paying business customer as if they are supportingg this daily maliciously assult on their tech platform.....
+I can't keep defending this all by myself, and for much longer, but I still defend and I will still stand firm & still stand tall as long as I have the ability to do so and to continue to defend my daily terrorized & hacked web domain called "#CyberFraudBountyHunters" "AKA/DBA" "Pro Se Fraud Catcher"........all with efforts to defend and preserve all of the same documented cyber terorrism evidence against the same cyber terrorists who's only goal is to delete, remove, intercept, and/or spoil all that same cyber terrorism evidence that I have collected against them and is why they continue to hack me and trespass my hacked domain, while simoultaniously GitHub turns a blind eye and they don't seem to have any cares or concerns for witnessing daily cyber terrorism upon their own paying business customer as if they are supportingg this daily maliciously assult on their tech platform.....
 
 These malicious hacker cyber terrorists have been hacking me and all of my devices and my online accounts ever since my business's creation and inception and start date "Pro Se Fraud Catcher" now named "#CyberFraudBountyHunters"  established 08/23/2024...where I was actually able to publicly post some "SOS" screenshot evidence on various social media platforms to help boost my SOS's signals because the communist AI sentinel guard-bots who control, restrict, monitor, and limit all of my electronic telecommunication abilities......have been studying me at the same time I've been studying them and they have been learning who I am this past whole year and half and deciphering my digital incarceration......where I can only describe these AI Virus Bots as similar to a figurative or metaphoric communist AI authoritarium futuristic guard-bots that are found simlar and comparitive to your usual Sci-Fi apocolyptic AI take-over end of the world SCI-FI movies......because they seem to be "criminally programmed as sinister Frankenstein terminator war machine bots, that have split personalities and seem to be as freindly as Rogue AI Sentienl Communist Gaurd-Bots - that come equipped with their own AI Virus Payload....... who daily assist the real human cyber terrorist's remotely....that have since Hacked me and taken me and my business hostage ever since 08/10/2024.
 
@@ -88,7 +88,8 @@ Its because of both this Peronal and Professional experience that I Proudly and 
 
 Sincerely,
 
-Sean Bruce Henry
+Sean Bruce Henry,
+
 Founder, Creator, Owner, Sole MBR, Mortgage Underwriter, Property Manager, Family Caretaker, YouTube Channel Owner/Manager, Human Rights Activist, Whistleblower, 
 Private Cyber Fraud Investigator
 ![#CyberFraudBountyHunters com](https://github.com/user-attachments/assets/2eed6dd6-5365-47f2-8b52-482f6038b56d)
