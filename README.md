@@ -78,7 +78,7 @@ This "GitHub Dark Web Hacker Backdoor Portal" was secretly linked to all of my p
 
 I'd say my Cyber Security & Cyber Investigations business and company......if it's ever called into question, it's integrity that is......regarding anything about cyber security, or building a Website on the fly, or it's cyber defiance against all cyber terrrorism.......I believe my company's dark web resume and digital credentials puts me and my business at the very top of any cyber security integrity list.....being that it now includes a year and half of self domain defended & self domain protected "Dark Web Cred"! 
 
-I challenge anyone else to prove or find any other daily hacked cyber security or cyber investigation business or company that has any fraction of cyber grit compared to what my digital domain has digitally demonstrated and has digitally experienced has digitally defended and is digitally still standing?
+I challenge anyone else to prove or find any other daily hacked cyber security or cyber investigation business or company that has any fraction of cyber grit compared to what my digital domain has digitally demonstrated and has digitally experienced and has digitally defended and is still digitally standing?
 
 Our Business Domain's Self Reporting Dark Web Accredation has been real world tested and real life experienced making it the very rare digital gem and unique cyber security company that's been thoroughly vetted that I believe this AI world will need!
 
