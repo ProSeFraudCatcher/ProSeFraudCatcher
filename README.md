@@ -99,7 +99,7 @@ Private Cyber Fraud Investigator,
 
 ![#CyberFraudBountyHunters](https://github.com/user-attachments/assets/55a62ba2-9514-4fde-b7da-67deeb9a5d62)
 ![#CyberFraudBountyHunters com](https://github.com/user-attachments/assets/2eed6dd6-5365-47f2-8b52-482f6038b56d)
-
+[Microsoft Defender Cert.pdf](https://github.com/user-attachments/files/24015953/Microsoft.Defender.Cert.pdf)
 
 
 
