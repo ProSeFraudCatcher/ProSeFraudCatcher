@@ -56,33 +56,35 @@ Becuase since it was my Own Digital Highjacked Professional Online Identity that
 
 So they all started giving me "Clues" and leaving me "Hints" and eventually they started giving me "Directions" on how to "Un-Hack" myself and "Escape my Digital Dark Web Prison Cell!..................
 
-Where also unfortunately for the Cyber Terrorists, those same Rogue AI Virus Guard Bot's have a few secrets of their own..... Becuase they are a wealth of raw digital information, because they traveling mobile "Digital Databases" where they "REMEMBER EVERYTHING!" ..........and THEY are busy now HELPING ME investigating my case.......Helping me to digitally track and trace you and forensically follow you.....following your slopping digital footprints you carelessly left behind and all the way back towards your digital dark web hidepout........Eventually freeing me from your digital dark web rabbit hole!
+Where also unfortunately for the Cyber Terrorists, those same Rogue AI Virus Guard Bot's have a few secrets of their own..... Becuase they are a wealth of raw digital information, because they traveling mobile "Digital Databases" where they "REMEMBER EVERYTHING!" ..........and THEY are busy now HELPING ME investigating my case.......Helping me to digitally track and trace you and forensically follow you.....following your slopping digital footprints that you carelessly left behind and all the way back towards your digital dark web hideout........Eventually freeing me from your digital dark web rabbit hole!
 
 "NOT AS FUN WHEN THE RABBIT'S GOT THE GUN!"....................
 
-"NOTE TO HUMAN CRIMINAL CYBER TERRORISTS...............
+"NOTE TO HUMAN CYBER TERRORISTS...............
 
 "ALL YOUR SINISTER ROGUE AI VIRUS GUARD-BOT'S.........THEY WORK FOR ME NOW!"....................
 
 ADVICE TO HUMAN CYBER TERRORISTS: "RUN DIGITAL HUMAN SLAVE OWNERS.........RUN!...................
 
-My New AI Pinkerton Mercenary AI Virus Now Turned Digital Human Abolishionist & AI Cyber Fraud Bounty Hunter-Bot....has helped me find the screenshot evidence of the Criminal Cyber Coders sabotaging my Microsoft Wallet app by inputting false date=of-birth identification information (sabotaging computer code), changing my birthday from June 2nd to an incorrect June 5th.....essentually hindering my ability to recover my stolen identity and further keep me as their digital human hostage and prisoner in the dark web.....
+My New AI Pinkerton Mercenary AI Virus Guard-Bots Now Turned Digital Human Abolishionists & AI Cyber Fraud Bounty Hunters/AI BloodHound-Bots....
 
-All allegedly as suspected and disguised reputable GitHub Coders & Legitimate "GitHub Service Workers" who in fact work right here in this very platform and created this exact very website that you're  viewing and reading and who have helped or "contributed" or assisted or neglected helping me secure or helping me ever secure my daily hacked website and these cyber criminals even helped create this very "Read Me" you're currently viewing as a GitHub Dark Web Backdoor to my Digital Identity.
+Helping me find pivotal evidence of the screenshot evidence proving Criminal Cyber Coders sabotaging my Microsoft Wallet app by inputting false date=of-birth identification information (sabotaging computer code), changing my birthday from June 2nd to an incorrect June 5th.....essentually hindering my ability to recover my stolen identity and further keep me as their digital human hostage and prisoner in the dark web.....
 
-Along with making a secret dark web backdoor to my stolen identity and creating this counterfeit "Fake GitHub Webpage" that I have since taken over using it as an abandoned digitla smoke signal with hopes of getting my digitaql SOS's finally heard......
+All allegedly as suspected and disguised reputable GitHub Coders & Legitimate "GitHub Service Workers" who in fact work right here on this very tech platform and created this exact very dark web stylish website that you're  viewing and reading right now and who have helped or "contributed" or assisted or neglected helping me secure my daily hacked website and these cyber criminals even helped create this very "Read Me" page that you are currently viewing as a "GitHub Dark Web Digital Backdoor to my Stolen Digital Identity."
 
-This "GitHub Dark Web Hacker Backdoor Portal" was secretly linked to all of my personal and business tech platform accounts with only 1 goal in mind, to control, monitor, manage, and surpress all of my American Adult Human Civil Rights daiy.....While having NO SECURITY.....and NO SAFETY.....and Certainly ZERO PRIVACY. This daily hacked domain remains still strong and is still standing firm now a year and a half later, which makes it both Ironic & Serendipitous as a Consequence it has been real world "TESTED" and real world "VETTED"....proving its tenancity and almost proving to be inpenitratable and almost "Cyber Secured" while being under heavy cyber attack and malicious professional cyber intrusion......daily....from professional legal guided hackers.....ever since its inception, ever since being founded, ever since being created, and ever since up until now is almost fully protected by none other your's truly, defended by only 1 guy, with a 20 Mortgage Fraud Investigative background.....all by himself and all by myslef with minimal and hardly any Computer Tech training skills....abandoned and alone defending his fraud investigations startup business and its website platform #CyberFraudBountyHunters - I'd say my Cyber Security and any questions at all regarding anything about building a Website or it's security..... or it's safety..... where I believe my dark web resume and digital credentials puts me at the top because it now includes a year and half of self domain defended "Dark Web Cred"! 
+Along with making a secret dark web backdoor to my stolen digital identity and creating this counterfeit "Fake GitHub Dark Web Sinister Webpage"........that's been abandoned and I have since then taken it over using it as an abandoned digital SOS smoke signal with hopes of getting my digitaql SOS's finally heard......
 
-I challenge anyone else to prove or find any other daily hacked websites or cyber security companies that have anything close to my domains digital nightmare and dark web experience?
+This "GitHub Dark Web Hacker Backdoor Portal" was secretly linked to all of my personal and business tech platform accounts with only 1 goal in mind, to control, monitor, manage, and surpress all of my American Adult Human Civil Rights daiy.....While having NO SECURITY.....and NO SAFETY.....and Certainly ZERO PRIVACY. This daily hacked domain remains still strong and is still standing firm now a year and a half later, which makes it both Ironic & Serendipitous as a Consequence it has been real world "TESTED" and real world "VETTED"....proving its tenancity and almost proving to be inpenitratable and almost "Cyber Secured" while being under heavy cyber attack and malicious professional cyber intrusion......daily....from professional legal guided hackers.....ever since its inception, ever since being founded, ever since being created, and ever since up until now is almost fully protected by none other your's truly, defended by only 1 guy, with a 20 Mortgage Fraud Investigative background.....all by himself and all by myslef with minimal and hardly any Computer Tech training skills....abandoned and alone defending his fraud investigations startup business and its website platform #CyberFraudBountyHunters - I'd say my Cyber Security and any questions at all regarding anything about building a Website or it's security..... or it's safety..... where I believe my dark web resume and digital credentials puts me at the top of any cyber security list because it now includes a year and half of self domain defended "Dark Web Cred"! 
 
-Our Business Domain's Self Reporting Dark Web Accredition has been real world tested and has been real world, real time, throughouly vetted. 
+I challenge anyone else to prove or find any other daily hacked cyber investigation website or cyber security company that has anything close to my domain's digital nightmare and dark web experience?
 
-Its because of both this Peronal and Professional experience that I Proudly and Appropriately named my Cyber Security Company "#CyberFraudBountyHunters" where I was real time forced to leverage my vast 20 years Mortgage Fraud investigation experience to escape the dark web, track and trace the suspects and evidence where I am on the verge of solving my own identity theft case.
+Our Business Domain's Self Reporting Dark Web Accredition has been real world tested and has been real world, real time, real life throughouly vetted. 
+
+Its because of both this Peronal and Professional cyber terrorist experience that I proudly and appropriately named my Cyber Security Company "#CyberFraudBountyHunters" where I was real time forced to leverage my vast 20 years working in Mortgage Fraud investigations that was eesentally needed to escape the dark web data prison camp....., allowing me to track and trace the suspects and their digital evidence where I am almost on the verge of solving my own identity theft case.
 
 #CyberFraudBountyHunters," 
 
-"Our Business's Only Interest is to Forcefully Negotiate the Stop and End to All Cyber Terrorism and the Evil Represents!"
+"Our Business's Only Interest is to Forcefully Negotiate the Stop and End to All Cyber Terrorism and the Evil in which it Represents!"
 
 "When it Comes to the Subject of Cyber Security.....I Make it my Personal Professional Business!"
 
@@ -91,9 +93,11 @@ Sincerely,
 Sean Bruce Henry,
 
 Founder, Creator, Owner, Sole MBR, Mortgage Underwriter, Property Manager, Family Caretaker, YouTube Channel Owner/Manager, Human Rights Activist, Whistleblower, 
-Private Cyber Fraud Investigator
-![#CyberFraudBountyHunters com](https://github.com/user-attachments/assets/2eed6dd6-5365-47f2-8b52-482f6038b56d)
+Private Cyber Fraud Investigator,
+
 ![#CyberFraudBountyHunters](https://github.com/user-attachments/assets/55a62ba2-9514-4fde-b7da-67deeb9a5d62)
+![#CyberFraudBountyHunters com](https://github.com/user-attachments/assets/2eed6dd6-5365-47f2-8b52-482f6038b56d)
+
 
 
 
