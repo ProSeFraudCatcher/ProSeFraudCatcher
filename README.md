@@ -1,5 +1,3 @@
-https://learn.microsoft.com/en-us/users/seanbrucehenry-5476/transcript/vny6t226nxk1ojd
-
 https://YouTube.com/@CyberFraudBountyHunters
 
 https://LinkedIn.com/in/seanhenry1978
@@ -21,6 +19,8 @@ https://Yahoo.com/#CyberFraudBountyHunters
 https://Edge/com/#CyberFraudBountyHunters
 
 https://Firefox.com/#CyberFraudBountyHunters
+
+https://learn.microsoft.com/en-us/users/seanbrucehenry-5476/transcript/vny6t226nxk1ojd
 
 #CyberFraudBountyHunters 
 
