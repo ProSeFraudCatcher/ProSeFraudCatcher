@@ -97,6 +97,9 @@ Sean Bruce Henry,
 Founder, Creator, Owner, Sole MBR, Mortgage Underwriter, Property Manager, Family Caretaker, YouTube Channel Owner/Manager, Human Rights Activist, Whistleblower, 
 Private Cyber Fraud Investigator,
 
+
+[EULA Law Regarding Wire-Tapping and Unauthorized Surveillance.pdf](https://github.com/user-attachments/files/24026495/EULA.Law.Regarding.Wire-Tapping.and.Unauthorized.Surveillance.pdf)
+
 ![#CyberFraudBountyHunters](https://github.com/user-attachments/assets/55a62ba2-9514-4fde-b7da-67deeb9a5d62)
 ![#CyberFraudBountyHunters com](https://github.com/user-attachments/assets/2eed6dd6-5365-47f2-8b52-482f6038b56d)
 https://github.com/user-attachments/files/24015953/Microsoft.Defender.Cert.pdf 
