@@ -26,7 +26,12 @@ https://learn.microsoft.com/en-us/users/seanbrucehenry-5476/transcript/vny6t226n
 
 #CyberFraudBountyHunters 
 
-- After 20 Years Working in Mortgage Finance as a Highly trained Mortgage Underwriter being fluent in banking and identity theft security, I've Recently Become the Subject & Target of "MY OWN PERSONAL IDENTITY THEFT DIGITAL NIGHTMARE!"
+Location
+    South Saint Paul, Minnesota
+Occupation
+    Private Investigator
+Biography
+    20yr Mortgage Underwriter trained in financial fraud forced to start a cyber security investigation company "#CyberFraudBountyHunters" after allegedly becoming the targeted subject of "MY OWN PERSONAL CYBER HACKED DIGITAL NIGHTMARE!"
 
 Where I Allege has been perpetraited by Criminally Programmed Rogue AI Sentinel Communist Guard-Bots with the magic ability to "Self-Hack Themselves"......on Self Auto-Hacking......Self-Autopilot (including any nearby WIFI or Bluetooth hackable devices)....straight out of Sci-Fi Doomsday Movie where I have been taken hostage and held prisoner against my will...... being gagged and quietly taken hostage as 1 of the world's 1st unkown, unheard of, AI Digital Human Prisoner's of Cyber War!........ that's been Wrongfully Imprisoned on a Figurative and Meta-Phoric "Digital Dark Web Powershell POW Data-Prison Camp!"
 
